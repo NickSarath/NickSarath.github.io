@@ -1,1 +1,0 @@
-# Nick Sarath Portfolio
